@@ -1,28 +1,81 @@
-# Vicky Brown — Executive Portfolio
+# Vicky Brown
+### Executive Portfolio
 
-Senior Operations, Supply Chain & Procurement Leader
+**Senior Operations, Supply Chain & Procurement Leader**
 
-Vicky Brown brings 20+ years of experience across automotive OEM, logistics and fashion retail, with expertise in operations, procurement, key account management, financial administration, risk/compliance and process improvement.
+---
 
-## Career
-- Uniserve Group Limited — Key Account Manager
-- Ford Component Sales — 17-year progression through customer support and sales/purchase leadership
-- David Hart Santo Ltd — Operations Manager
-- Acclaim Handling Limited — Service Controller
-- Delamode International Logistics — Fashion Administrator
-- Cobra Europe Ltd — Administration
+## About Me
 
-## Expertise
-Operations & Supply Chain Leadership · Procurement & Supplier Negotiation · Key Account Management · Financial Administration & Credit Control · Risk & Regulatory Compliance · Team Leadership & Process Improvement
+I am a senior operations, supply chain and procurement professional with extensive experience delivering commercial, operational and customer-focused results across complex business environments.
 
-## Systems
-SAP · BaaN · SAGE · Road/Air/Sea Freight Forwarding · Customs Documentation
+My experience combines strategic leadership, operational execution, stakeholder management and continuous improvement, with a strong focus on building effective relationships and delivering measurable business value.
 
-## Qualifications
-NVQ Business Administration Level 3 · BTEC Diploma Management Level 3 · 9 GCSEs including English and Mathematics · Qualified First Aider · Full UK driving licence
+---
 
-## Board Direction
-Vicky is pursuing her first board appointment and brings a practical, delivery-focused perspective grounded in operational leadership, risk/compliance, financial control and stakeholder relationships.
+## Core Expertise
 
-## Contact
-vicky.brwn@gmail.com · Essex, UK
+- Operations Management
+- Supply Chain Strategy
+- Procurement
+- Strategic Sourcing
+- Supplier & Vendor Management
+- Customer Relationship Management
+- Commercial Operations
+- Process Improvement
+- Cross-Functional Leadership
+- Stakeholder Management
+- Performance & Delivery Management
+
+---
+
+## Professional Experience
+
+### Senior Operations & Supply Chain Leadership
+
+Experience supporting complex operational environments while working across customers, suppliers, internal stakeholders and commercial teams.
+
+**Key areas of contribution:**
+
+- Operational strategy and execution
+- Supply chain coordination
+- Procurement and supplier relationships
+- Customer and account management
+- Process improvement
+- Cross-functional collaboration
+- Commercial performance
+- High-quality service delivery
+
+---
+
+## Professional Strengths
+
+**Strategic Thinking**  
+Connecting operational priorities with broader business objectives.
+
+**Leadership & Collaboration**  
+Working effectively with senior stakeholders, customers, suppliers and cross-functional teams.
+
+**Customer Focus**  
+Building strong professional relationships and maintaining a high standard of service.
+
+**Operational Excellence**  
+Improving processes, managing priorities and supporting consistent business performance.
+
+---
+
+## Career Highlights
+
+> A career built around operations, supply chain, procurement, customer relationships and delivering results in demanding business environments.
+
+---
+
+## Let's Connect
+
+I am open to conversations regarding senior opportunities across:
+
+**Operations | Supply Chain | Procurement | Commercial Management | Strategic Leadership**
+
+---
+
+*Vicky Brown — Executive Portfolio*
