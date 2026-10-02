@@ -75,7 +75,11 @@ Improving processes, managing priorities and supporting consistent business perf
 I am open to conversations regarding senior opportunities across:
 
 **Operations | Supply Chain | Procurement | Commercial Management | Strategic Leadership**
+### Professional Snapshot
 
+Senior operations, supply chain and procurement leader with experience across complex commercial and customer-focused environments. Brings together operational leadership, procurement expertise, supply chain coordination and stakeholder management to support business performance and long-term relationships.
+
+**Focus Areas:** Operations • Supply Chain • Procurement • Strategic Sourcing • Customer & Stakeholder Management • Commercial Operations
 ---
 
 *Vicky Brown — Executive Portfolio*
