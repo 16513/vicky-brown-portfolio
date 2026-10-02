@@ -31,21 +31,28 @@ My experience combines strategic leadership, operational execution, stakeholder 
 
 ## Professional Experience
 
-### Senior Operations & Supply Chain Leadership
+### Operations, Supply Chain & Procurement Leadership
 
-Experience supporting complex operational environments while working across customers, suppliers, internal stakeholders and commercial teams.
+Vicky's professional experience reflects a strong combination of operational leadership, supply chain management, procurement, customer relationship management and commercial delivery.
 
-**Key areas of contribution:**
+#### Key Areas of Experience
 
-- Operational strategy and execution
-- Supply chain coordination
-- Procurement and supplier relationships
-- Customer and account management
-- Process improvement
-- Cross-functional collaboration
-- Commercial performance
-- High-quality service delivery
+| Area | Experience |
+|---|---|
+| **Operations** | Operational planning, execution and performance management |
+| **Supply Chain** | Supply chain coordination, delivery and process improvement |
+| **Procurement** | Supplier relationships, sourcing and commercial support |
+| **Customer Management** | Customer service, account relationships and stakeholder engagement |
+| **Commercial** | Supporting business objectives and maintaining strong commercial relationships |
+| **Leadership** | Cross-functional collaboration and senior stakeholder management |
 
+#### Leadership Approach
+
+- Drives structured and efficient operational processes
+- Builds strong relationships with customers, suppliers and stakeholders
+- Coordinates priorities across multiple business functions
+- Supports continuous improvement and operational effectiveness
+- Maintains a strong focus on service quality and delivery
 ---
 
 ## Professional Strengths
