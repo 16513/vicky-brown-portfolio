@@ -89,8 +89,25 @@ Vicky's professional experience reflects a strong combination of operational lea
 
 ## Career Highlights
 
-> A career built around operations, supply chain, procurement, customer relationships and delivering results in demanding business environments.
+> **Operations**
+>
+> Driving effective operational delivery and maintaining high standards across complex business environments.
 
+> **Supply Chain**
+>
+> Supporting efficient supply chain processes, coordination and delivery across stakeholders and business functions.
+
+> **Procurement**
+>
+> Managing supplier relationships, sourcing activities and commercial priorities to support business objectives.
+
+> **Customer Relationships**
+>
+> Building trusted relationships with customers and stakeholders while maintaining a strong service focus.
+
+> **Continuous Improvement**
+>
+> Identifying opportunities to improve processes, efficiency and overall operational performance.
 ---
 
 ## Let's Connect
