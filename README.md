@@ -55,20 +55,36 @@ Vicky's professional experience reflects a strong combination of operational lea
 - Maintains a strong focus on service quality and delivery
 ---
 
-## Professional Strengths
+## Skills & Expertise
 
-**Strategic Thinking**  
-Connecting operational priorities with broader business objectives.
+### Strategic & Operational Leadership
+- Operations Management
+- Business Operations
+- Strategic Planning
+- Process Improvement
+- Performance Management
 
-**Leadership & Collaboration**  
-Working effectively with senior stakeholders, customers, suppliers and cross-functional teams.
+### Supply Chain & Procurement
+- Supply Chain Management
+- Procurement
+- Strategic Sourcing
+- Supplier Management
+- Vendor Relationships
+- Commercial Negotiation
 
-**Customer Focus**  
-Building strong professional relationships and maintaining a high standard of service.
+### Customer & Stakeholder Management
+- Customer Relationship Management
+- Account Management
+- Stakeholder Engagement
+- Cross-Functional Collaboration
+- Service Delivery
 
-**Operational Excellence**  
-Improving processes, managing priorities and supporting consistent business performance.
-
+### Professional Capabilities
+- Problem Solving
+- Organisation & Prioritisation
+- Project Coordination
+- Continuous Improvement
+- Senior-Level Communication
 ---
 
 ## Career Highlights
